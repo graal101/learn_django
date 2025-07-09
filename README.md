@@ -3,6 +3,6 @@
 ```
 selfedu (практика)
 ```
-[playlist](https://www.youtube.com/watch?v=oBU83uojltE&list=PLA0M1Bcd0w8yU5h2vwZ4LO7h1xt8COUXl&index=1)
+[ selfedu playlist ](https://www.youtube.com/watch?v=oBU83uojltE&list=PLA0M1Bcd0w8yU5h2vwZ4LO7h1xt8COUXl&index=1)
 
 
